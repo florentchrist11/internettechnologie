@@ -1,2 +1,0 @@
-# internettechnologie
-Unsere Projekt
